@@ -1,2 +1,2 @@
-# indivisibleabroad.github.io
-Information for Americans living abroad who want their elected representatives back home to hear us
+# Indivisible Abroad
+Information for Americans living abroad who won't be ignored by their elected representatives any longer
